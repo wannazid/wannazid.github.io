@@ -1,4 +1,4 @@
-## WanNazID
+## wannazid
 ![alt](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTKtKrTuqQt3qbpJRnPq67W63gqNnF3McQN1g&usqp=CAU|width=200)
 
 Hi, My name is Ridwan, i'm from Indonesia, yogyakarta, besides that i'm still a student
